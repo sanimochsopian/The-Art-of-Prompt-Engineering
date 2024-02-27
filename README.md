@@ -1,4 +1,3 @@
-# 💫 About Me:
 # Hello World!! <> I’m Sani Moch Sopian<br> 
 <br>-
 ## 🌐 Socials:
